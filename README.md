@@ -1,3 +1,3 @@
 - 💬 Ask me about- KronicLabz
-- 📫 How to reach me- matt.kristoff@kroniclabz.com mjkristoff81@gmail.com
+- 📫 How to reach me- matt.kristoff@kroniclabz.com mjkristoff@notlostjustexploring.us
 ---BEGIN SIGNATURE---C05D759425AAB2C24D28178263569E81F12668FA0F71D3BF329568BA0179F4ACCF1B86441353359AE5C6EC6FB797704FCE50E3AC324C377340ED8C47B468050F---END SIGNATURE---
